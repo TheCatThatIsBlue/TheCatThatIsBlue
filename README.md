@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TheCatThatIsBlue
+- 👀 I’m interested in cats
+- 🌱 I’m currently learning the guitar
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: with your arm
